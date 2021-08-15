@@ -11,14 +11,14 @@ La ville de Bessèges n’a rien de très intéressant (si ce n’est son passé
 
 Boulangerie(s), boucherie, primeur, pharmacie, kiosque sont à quelques centaines de mètres.
 
-Un supermarché (Carrefour Market) se trouve à l'entrée de Bessèges. Ne pas rater, en face, "la TREILLE", pour amateurs de vin de bons produits.
+Un supermarché (Carrefour Market) se trouve à l'entrée de Bessèges. Ne pas rater, en face, "la TREILLE", pour amateurs de vin et de bons produits.
   
 
 ## Baignade
 
 ### Camping
 
-Baignade surveillée au camping (20 minutes à pied, 8 à vélo). Guinguette de la Lecque en face pour les petits creux (crèpes et glaces, prix vraimen raisonnables). On y mange bien aussi, simple mais bon et servi avec le sourire. 
+Baignade surveillée au camping (20 minutes à pied, 8 à vélo). Guinguette de la Lecque en face pour les petits creux (crèpes et glaces, prix vraiment raisonnables). On y mange bien aussi, simple mais bon et servi avec le sourire. 
 
 ### Les deux eaux, Chambonneau
 
